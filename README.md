@@ -1,2 +1,2 @@
 # Homesky Tenants Association
-Tenant Rights Advocacy in Toronto
+Tenant Rights Advocacy in Scarborough
