@@ -1,2 +1,2 @@
 # Homesky Tenants Association
-Tenant Rights Advocacy in Scarborough
+Tenant Rights Advocacy Group
